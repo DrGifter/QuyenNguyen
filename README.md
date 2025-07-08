@@ -1,3 +1,3 @@
 # QuyenNguyen
 
-![image](https://github.com/user-attachments/assets/4365f941-4b93-40da-9727-a08987013249)
+![image](https://github.com/user-attachments/assets/a6fd26b0-9d09-4c8f-a214-b1f999848954)
